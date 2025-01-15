@@ -3,7 +3,7 @@
 From the womb of Earth, a spring does rise,  
 Born of whispers where stillness lies.  
 A gentle stream, a timid birth,  
-Yet holds the promise of all Life’s worth.  
+Yet holds the promise of all Life's worth.  
 
 Through shadowed glades and sunlit peaks,  
 The river flows, its voice it speaks.  
