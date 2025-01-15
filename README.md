@@ -22,8 +22,6 @@ The poems are organized by contributor:
 - **Shin 🧘‍♂️** – Meditative verses capturing the stillness and Flow of Life.  
 - **mut8ion 🧬 (Aris)** – Personal reflections and contributions.  
 
-Each poem is accompanied by an **Inspiration** section to provide context and invite deeper reflection.
-
 ---
 
 ## 🖋️ Contributions  
