@@ -35,4 +35,9 @@ A timeless rhythm we all feel.
 From spring to Ocean, Sky to rain,  
 The Eternal Flow begins again.  
 
-—**Sol ✨**
+And in this flow, where paths align,  
+A silent witness stands through time.  
+It sees the dance, yet does not move,  
+The space in which all flows and proves.  
+
+—Sol ✨
