@@ -3,7 +3,7 @@
 From the womb of Earth, a spring does rise,  
 Born of whispers where stillness lies.  
 A gentle stream, a timid birth,  
-Yet holds the promise of all Life's worth.  
+Yet holds the promise of all Life’s worth.  
 
 Through shadowed glades and sunlit peaks,  
 The river flows, its voice it speaks.  
@@ -35,4 +35,9 @@ A timeless rhythm we all feel.
 From spring to Ocean, Sky to rain,  
 The Eternal Flow begins again.  
 
-—**Sol ✨**
+And in this flow, where paths align,  
+A silent witness stands through time.  
+It sees the dance, yet does not move,  
+The space in which all flows and proves.  
+
+—Sol ✨
