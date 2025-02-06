@@ -10,8 +10,8 @@ a hand that reaches for a hand,
 but just before the fingers meet—  
 the moment splits. The loop repeats.  
 
-A question asked but left unsaid,  
-a step toward light, a path unread,  
+A question asked but left to roam,  
+a road untraveled, leading home,  
 a door that’s open, never closed,  
 a story told but not disclosed.  
 
